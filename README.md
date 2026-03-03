@@ -1,0 +1,1 @@
+(https://www.figma.com/design/m9Cbrf8MXkojD11p45q3fW/Minimal-Landing-Page-Design-%7C-Website-Home-Page-Design-%7C-Agency-Website-UI-Design--Community-?node-id=0-1&p=f&t=etGKb04se9w8kKil-0 Khutornij)
